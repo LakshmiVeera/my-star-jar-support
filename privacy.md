@@ -21,4 +21,4 @@ My Star Jar does not collect personal information from children or adults.
 ## Contact
 If you have questions about this policy, contact:
 
-📧 support@mystarjar.app
+📧 technymedia1@gmail.com
